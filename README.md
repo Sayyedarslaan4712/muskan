@@ -1,1 +1,1 @@
-# Sayyed-Arslaan-.github.io
+# SayyedArslaan.github.io
